@@ -21,8 +21,8 @@
 
 ###
 
-⚙️ Founder of Pukich Dev           ┋ Want to accomplish:
+⚙️ Founder of Pukich Devㅤㅤㅤㅤㅤㅤ┋ Want to accomplish:
 
-🚩 Languages: ᴇɴ/ʀᴜ                ┋ Java, Python, HTML, C#
+🚩 Languages: ᴇɴ/ʀᴜㅤㅤㅤㅤㅤㅤㅤㅤㅤ┋ Java, Python, HTML, C#
 
-📍 Live in U.S.A                   ┋ Photoshop, After Effects
+📍 Live in U.S.Aㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ┋ Photoshop, After Effects
