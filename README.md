@@ -21,4 +21,4 @@
 
 ###
 
-<img align="right" height="500" src="https://i.gifer.com/PYh.gif"  />
+<img align="right" height="200" src="https://i.gifer.com/PYh.gif"  />
