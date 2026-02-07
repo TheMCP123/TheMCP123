@@ -21,7 +21,7 @@
 
 ###
 
-⚙️ Founder of Pukich Devㅤㅤㅤㅤㅤㅤ┋ Want to accomplish:
+⚙️ Founder of Pukich Devㅤㅤㅤㅤㅤㅤ┋ Want to study/improve:
 
 🚩 Languages: ᴇɴ/ʀᴜㅤㅤㅤㅤㅤㅤㅤㅤ┋ Java, Python, HTML, C#
 
