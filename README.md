@@ -1,5 +1,5 @@
 # Hi, I'm MCP 👋
-## Founder of Pukich Dev
+Founder of Pukich Dev
 
 <div align="left">
   <a href="https://namemc.com/profile/TheMCP123.1" target="blank">
@@ -12,6 +12,6 @@
     <img src="https://i.postimg.cc/HW7mqmzv/image.png" height="35" alt="youtube logo"  />
   </a>
   <a href="https://www.youtube.com/@pukichdev" target="blank">
-    <img src="https://i.postimg.cc/ydGLBw16/image.png" height="35" alt="youtube logo"  />
+    <img src="https://i.postimg.cc/5t0GV5Bm/image.png" height="35" alt="youtube logo"  />
   </a>
 </div>
