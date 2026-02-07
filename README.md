@@ -8,6 +8,6 @@
     <img src="https://i.postimg.cc/QxW2yq8Z/image.png" height="35" alt="youtube logo"  />
   </a>
   <a href="https://t.me/pukichinsky" target="_blank">
-    <img src="https://i.postimg.cc/Ssn4Nbhk/image.png" height="35" alt="youtube logo"  />
+    <img src="https://i.postimg.cc/HW7mqmzv/image.png" height="35" alt="youtube logo"  />
   </a>
 </div>
