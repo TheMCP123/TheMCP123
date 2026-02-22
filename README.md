@@ -21,8 +21,8 @@
 
 ###
 
-⚙️ Founder of Pukich Devㅤㅤㅤㅤㅤㅤ┋ Want to study/improve:
+⚙️ Founder of Pukich Devㅤㅤㅤㅤㅤㅤ┋ My interests are:
 
-🚩 Languages: ᴇɴ/ʀᴜㅤㅤㅤㅤㅤㅤㅤㅤ┋ Java, Python, HTML, C#
+🚩 Languages: ᴇɴ/ʀᴜㅤㅤㅤㅤㅤㅤㅤㅤ┋ Photoshop, Java, C#
 
-📍 Live in U.S.Aㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ┋ Photoshop, After Effects
+📍 Live in U.S.Aㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ┋ Minecraft development
