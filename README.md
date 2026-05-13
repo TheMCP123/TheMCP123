@@ -21,8 +21,8 @@
 
 ###
 
-⚙️ Founder of Pukich Devㅤㅤㅤㅤㅤㅤ┋ My interests are:
+⚙️ Founder of Pukich Devㅤㅤㅤㅤㅤㅤ┋ My current planks:
 
-🚩 Languages: ᴇɴ/ʀᴜㅤㅤㅤㅤㅤㅤㅤㅤ┋ Photoshop, Java, C#
+🚩 Languages: ᴇɴ/ʀᴜㅤㅤㅤㅤㅤㅤㅤㅤ┋ Learning basics of Java.
 
-📍 Live in U.S.Aㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ┋ Minecraft development
+📍 Live in U.S.Aㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ┋ Getting better at video editing.
