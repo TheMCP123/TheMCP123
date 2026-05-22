@@ -21,7 +21,7 @@
 
 ###
 
-⚙️ Founder of Pukich Devㅤㅤㅤㅤㅤㅤ┋ My current planks:
+⚙️ Founder of Pukich Devㅤㅤㅤㅤㅤㅤ┋ My current plans:
 
 🚩 Languages: ᴇɴ/ʀᴜㅤㅤㅤㅤㅤㅤㅤㅤ┋ Learning basics of Java.
 
