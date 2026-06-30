@@ -21,8 +21,8 @@
 
 ###
 
-⚙️ Founder of Pukich Devㅤㅤㅤㅤㅤㅤ┋ My current plans:
+⚙️ Founder of Pukich Devㅤㅤㅤㅤㅤㅤ┋ My Favorites:
 
-🚩 Languages: ᴇɴ/ʀᴜㅤㅤㅤㅤㅤㅤㅤㅤ┋ Learning basics of Java.
+🚩 Languages: ᴇɴ/ʀᴜㅤㅤㅤㅤㅤㅤㅤㅤ┋ Vibecoding, Photoshop.
 
-📍 Live in U.S.Aㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ┋ Getting better at video editing.
+📍 Location: U.S.Aㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ┋ Making strange stuff.
