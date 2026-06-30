@@ -26,3 +26,9 @@
 🚩 Languages: ᴇɴ/ʀᴜㅤㅤㅤㅤㅤㅤㅤ┋ Vibecoding, Photoshop.
 
 📍 Location: U.S.Aㅤㅤㅤㅤㅤㅤㅤㅤ  ┋ Making strange stuff.
+
+## Visit my creations:
+
+Eagler Clients: https://themcp123.github.io/mclients/
+
+MyTalkingWitarma: https://mytalkingwitarma.pages.dev/
