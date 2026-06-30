@@ -23,6 +23,6 @@
 
 ⚙️ Founder of Pukich Dev.ㅤㅤㅤㅤㅤ┋ My Favorites:
 
-🚩 Languages: ᴇɴ/ʀᴜㅤㅤㅤㅤㅤㅤㅤㅤ┋ Vibecoding, Photoshop.
+🚩 Languages: ᴇɴ/ʀᴜㅤㅤㅤㅤㅤㅤㅤ┋ Vibecoding, Photoshop.
 
-📍 Location: U.S.Aㅤㅤㅤㅤㅤㅤㅤㅤ ┋ Making strange stuff.
+📍 Location: U.S.Aㅤㅤㅤㅤㅤㅤㅤㅤ  ┋ Making strange stuff.
