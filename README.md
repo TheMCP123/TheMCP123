@@ -29,6 +29,8 @@
 
 ## Visit my creations:
 
-Eagler Clients: https://themcp123.github.io/mclients/
+Mineplace: https://mineplace.org/
 
 My Talking Witarma: https://mytalkingwitarma.pages.dev/
+
+Eagler Clients: https://themcp123.github.io/mclients/
