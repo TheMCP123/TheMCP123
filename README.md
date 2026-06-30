@@ -21,7 +21,7 @@
 
 ###
 
-⚙️ Founder of Pukich Dev.ㅤㅤㅤㅤ┋ My Favorites:
+⚙️ Founder of Pukich Dev.ㅤㅤㅤㅤ ┋ My Favorites:
 
 🚩 Languages: ᴇɴ/ʀᴜㅤㅤㅤㅤㅤㅤㅤ┋ Vibecoding, Photoshop.
 
@@ -31,4 +31,4 @@
 
 Eagler Clients: https://themcp123.github.io/mclients/
 
-MyTalkingWitarma: https://mytalkingwitarma.pages.dev/
+My Talking Witarma: https://mytalkingwitarma.pages.dev/
